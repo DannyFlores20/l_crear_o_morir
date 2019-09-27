@@ -42,6 +42,30 @@ Porque no tenemos un Steve Jobs en Latinoamérica -Cultura social y legal que no
 
 ## El mundo que se viene
 
-<blockquote>Estamos entrando en un periodo de transformación digital</blockquote>
+Andrés Oppenheimer viajó a Palo Alto en California (centro de innovación a nivel mundial) y a varios países para entrevistar a las mentes mas creativas de nuestro mundo y entender en que se diferencian de los demas.
+
+*La innovación se está democratilizando, y cada vez está más al alcance de la gente.
+
+*Los innovadores quieren vivir en lugares vibrantes donde se glorique el talento mas que el dinero.
+
+*EL éxito es el resultado de ir de fracaso en fracaso, sin perder el entusiasmo y la gente de Silicon Valley se vanagloria de sus fracasos porque las ven como experiencias de trabajo.
+
+ Dice que hay un ecosistema que hace posible la innovación ( educación de calidad, empresas y universidades en investigación y desarrollo  y ambiente económico que propicie la inversión de riesgo que aliente a la creación de nuevas empreas.
+
+En este capítulo da la importancia de contar con una masa crítica de mentes creativas respaldadas por execelentes sistemas educativos porque la creatividad es un proceso social y los grandes avances vienen de la gente de la que aprendemos y de la gente que colaboramos.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
